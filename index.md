@@ -1,6 +1,7 @@
 ## Guide
 
-##Banking - Wire Transfer TUTORIAL VIDEOS
+## Banking - First Month's Rent and Deposit
+Wire Transfer TUTORIAL VIDEOS
 
 [Bank of America Wire Transfer](https://youtu.be/XRQeN34e6Do)
 
