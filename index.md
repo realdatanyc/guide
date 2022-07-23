@@ -13,7 +13,7 @@
 
 [WLNG 92.1 FM East End's Best Music](http://www.wlng.com/)
 
-[WLELJ 104.7](https://welj.com/)
+[WELJ 104.7](https://welj.com/)
 
 [WLIW FM 88.3](wliw.org)
 
