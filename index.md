@@ -4,7 +4,7 @@
 
 [Bank of America Wire Transfer](https://youtu.be/XRQeN34e6Do)
 
-[Chase Bank Mobile App - Enroll in Wire Transfers] (https://youtu.be/URcao5L4dPQ)
+[Chase Bank Mobile App - Enroll in Wire Transfers](https://youtu.be/URcao5L4dPQ)
 
 ## Hamptons Guide
 
