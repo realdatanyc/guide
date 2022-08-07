@@ -8,7 +8,7 @@
 
 ## Entertainment
 
-[Eater Guide to Karaoke](https://ny.eater.com/maps/best-karaoke-bars-new-york-city)
+[Eater Guide to Karaoke - Top 14](https://ny.eater.com/maps/best-karaoke-bars-new-york-city)
 
 
 ## Hamptons Guide
