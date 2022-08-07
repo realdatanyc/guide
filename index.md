@@ -10,6 +10,8 @@
 
 [Eater Guide to Karaoke - Top 14](https://ny.eater.com/maps/best-karaoke-bars-new-york-city)
 
+[Time Out Guide to Karaoke - Top 10](https://www.timeout.com/newyork/bars/best-karaoke-bars)
+
 
 ## Hamptons Guide
 
