@@ -6,6 +6,11 @@
 
 [Chase Bank Mobile App - Enroll in Wire Transfers](https://youtu.be/URcao5L4dPQ)
 
+## Entertainment
+
+[Eater Guide to Karaoke](https://ny.eater.com/maps/best-karaoke-bars-new-york-city)
+
+
 ## Hamptons Guide
 
 
