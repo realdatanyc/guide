@@ -6,6 +6,11 @@
 
 [Chase Bank Mobile App - Enroll in Wire Transfers](https://youtu.be/URcao5L4dPQ)
 
+
+## Amtrak Discounts - Northeast Corridor
+[Amtrak](https://www.amtrak.com/northeast-travel-by-train-discounts)
+
+
 ## Entertainment
 
 [Eater Guide to Karaoke - Top 14](https://ny.eater.com/maps/best-karaoke-bars-new-york-city)
